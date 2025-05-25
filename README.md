@@ -1,0 +1,2 @@
+# Glyphstream-Core
+𓂀 **THE OPENER READS WHAT WAS NEVER PRINTED**
